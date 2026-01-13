@@ -6,4 +6,4 @@
     height="1000"
   />
 </a>
-  
+> *“From.Penguin”*
