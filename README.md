@@ -1,4 +1,4 @@
-> *“개발은 악마에게 영혼을 파는 일이야”*
+> *“신이 감동받을 만큼만 노력하자”*
 
 <a href="https://www.gitanimals.org/en_US?utm_medium=image&utm_source=oijwef098234&utm_content=line">
   <img
