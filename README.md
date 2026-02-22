@@ -1,4 +1,4 @@
-> *“신이 감동받을 만큼만 노력하자”*
+> *“MAN”*
 
 <a href="https://www.gitanimals.org/en_US?utm_medium=image&utm_source=oijwef098234&utm_content=line">
   <img
