@@ -1,4 +1,4 @@
-> *“MAN”*
+> *“인생은 원래 고독한 법이야”*
 
 <a href="https://www.gitanimals.org/en_US?utm_medium=image&utm_source=oijwef098234&utm_content=line">
   <img
