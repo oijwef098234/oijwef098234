@@ -1,4 +1,4 @@
-> *“결국 다 지나갑니다.”*
+> *“丈夫出家生不還”*
 
 <a href="https://www.gitanimals.org/en_US?utm_medium=image&utm_source=oijwef098234&utm_content=line">
   <img
