@@ -3,8 +3,8 @@
 <a href="https://www.gitanimals.org/en_US?utm_medium=image&utm_source=oijwef098234&utm_content=line">
   <img
     src="https://render.gitanimals.org/lines/oijwef098234"
-    width="100"
-    height="100"
+    width="1000"
+    height="1000"
   />
 </a>
   
